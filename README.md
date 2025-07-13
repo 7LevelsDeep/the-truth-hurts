@@ -1,4 +1,4 @@
-# The Truth Hurts! – Truth Bomb Campaign
+# The Truth Hurts! · Truth Bomb Campaign
 
 A grassroots movement to expose the uncomfortable truths behind poverty, homelessness, wealth inequality, and government failure — starting with Truth Bomb 001.
 
