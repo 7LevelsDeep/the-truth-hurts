@@ -14,4 +14,4 @@ To raise awareness through sharp, evidence-based storytelling and kickstart publ
 ---
 
 **Maintained by [7LevelsDeep](https://github.com/7LevelsDeep)** · Public domain content.
-Central hub for the Truth Hurts! campaign — messaging, branding, and assets.
+Central hub for The Truth Hurts! campaign — messaging, branding, and assets.
